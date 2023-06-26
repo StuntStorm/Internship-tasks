@@ -63,6 +63,49 @@ Task 2 - Complete the Command line
 ----------------------------------------------
 9th
 
+![image](https://github.com/StuntStorm/Internship-tasks/assets/56226566/7bf96643-9504-43e8-b563-031b443cf838)
+
+![image](https://github.com/StuntStorm/Internship-tasks/assets/56226566/eaae9c56-78bb-4487-840c-372800f656b8)
+![image](https://github.com/StuntStorm/Internship-tasks/assets/56226566/d90966b6-9bef-4669-9247-db6d77d30cc2)
+
+----------------------------------------------
+10th
+
+![image](https://github.com/StuntStorm/Internship-tasks/assets/56226566/adeb4cd7-0798-4670-9996-6ddc4bf054db)
+
+![image](https://github.com/StuntStorm/Internship-tasks/assets/56226566/5a7e088f-540b-4fae-a065-266e0aea9891)
+
+----------------------------------------------
+11th
+
+
+----------------------------------------------
+12th
+
+
+----------------------------------------------
+13th
+
+
+----------------------------------------------
+14th
+
+
+----------------------------------------------
+15th
+
+
+----------------------------------------------
+16th
+
+----------------------------------------------
+17th
+
+
+----------------------------------------------
+18th
+
+
 
 
 
